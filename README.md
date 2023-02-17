@@ -9,11 +9,11 @@
 
 - 🤝 Looking for job opportunities **in the financial, investing or marketing areas**
 
-- 📝 I regularly write articles on [Actualidiario](www.actualidiario.com)
+- 📝 I regularly write articles on [Actualidiario](www.actualidiario.com) (Currently in maintenance)
 
 - My most outstanding web creation: [Vital Link](https://vital-link.ca/)
 
-- 📫 How to reach me [My Email](<a href="mailto:suero.c.david@gmail.com?Subject=Request">Contact by mail</a>)
+- 📫 How to reach me -> (<a href="mailto:suero.c.david@gmail.com?Subject=Request">Contact me by mail</a>)
 
 - ⚡ What I like most **Identifying hidden patterns by analyzing through different perspectives**
 
